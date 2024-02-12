@@ -1,0 +1,1 @@
+![Thaijo](https://github.com/Chonapatcc/Clean-Data/blob/assets/score.png)
